@@ -1,1 +1,0 @@
-# ruddyperea.github.io
